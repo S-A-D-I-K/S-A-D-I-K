@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @S-A-D-I-K
 - 👀 I’m interested in ... Games
 - 🌱 I’m currently learning ... Pygame
-- 💞️ I’m looking to collaborate on ... gaes 
+- 💞️ I’m looking to collaborate on ... games 
 - 📫 How to reach me ... +880183807060 or midasredbladegmail.com
 
 <!---
