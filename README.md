@@ -6,7 +6,7 @@
 - 
 - 💞️ I’m looking to collaborate on ... games
 -  
-- 📫 How to reach me ... +880183807060 or midasredblade@gmail.com
+- 📫 How to reach me ... +880183807060 or sadikdipto05@gmail.com
 
 <!---
 S-A-D-I-K/S-A-D-I-K is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
